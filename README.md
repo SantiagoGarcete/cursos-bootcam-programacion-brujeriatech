@@ -1,4 +1,4 @@
-# Canal de Santi tocando el bajo!
+# Mi novia no me deja hacer nada
 ## - Covers de varios generos.
 
 [CLICK AQUI PARA IR AL CANAL](https://www.youtube.com/channel/UCykAD0WWJoPoIPo6vQBTnSQ)
