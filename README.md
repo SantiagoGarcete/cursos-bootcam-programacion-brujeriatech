@@ -1,4 +1,4 @@
-# Mi novia Gabriela no me deja hacer nada y se enoja por todo
+# Canal de Santi! 
 ## - Covers de varios generos.
 
 [CLICK AQUI PARA IR AL CANAL](https://www.youtube.com/channel/UCykAD0WWJoPoIPo6vQBTnSQ)
